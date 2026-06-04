@@ -31,7 +31,7 @@
 
 " **arent you originally miles mikuworth?** "
 
- - yes, i am miles mikuworth, but i stopped being him after i changed a lot. Well, my mental health has beeen... bad, and I've lost my spark.
+ - yes, i am miles mikuworth, but i stopped being him after i changed a lot. Well, my mental health has beeen... bad, and I've lost my spark,,, though i am getting better.
 
 
 # thats all ! larry . . . out ! ♡
