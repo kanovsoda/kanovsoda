@@ -9,7 +9,7 @@
 
 ,, **hobbies** : *drawing , gaming , and...  eating*
 
-,, **sexuality** : *bigender , bisexual , and aromantic
+,, **sexuality** : *bigender , bisexual , and aromantic*
 
        ( please ask me questions ! I dont really know what to put here anymore . )
 
