@@ -29,7 +29,7 @@
  - ...because why not? I found typing quirks fun and all , so i decided to take it to a whole new level and added a signature at the end of my messages (which is "- larry" if you dont really know me)!
  - the fun part is some people started pointing out my signature and also made harmless jokes about it, and i feel honored for some reason.
 
-" **arent you originally miles mikuworth? "
+" **arent you originally miles mikuworth?** "
 
  - yes, i am miles mikuworth, but i stopped being him after i changed a lot. Well, my mental health has beeen... bad, and I've lost my spark.
 
